@@ -12,7 +12,6 @@
 - 🏝 Exploring nature to be motivated
 - 🏋🏼 Going to the gym to be in good shape
 - ⚡️ Never feeling tired, always ready to work
-- :mailbox: Telegram: @jazzzes
 
 ---
 
