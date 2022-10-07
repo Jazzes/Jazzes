@@ -1,7 +1,4 @@
 ### Be free to check out all of projects, im sure something you will find interesting
-<div align="center">
-  <img src="https://media.tenor.com/U0tTlSlu5soAAAAd/computer-monday.gif">
-</div>
 
 ---
 
