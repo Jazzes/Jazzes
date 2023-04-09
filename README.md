@@ -1,4 +1,4 @@
-### Be free to check out all of projects, im sure something you will find interesting
+### Be free to check out all of projects, I'm sure something you will find interesting
 
 ---
 
